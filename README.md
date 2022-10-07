@@ -1,1 +1,1 @@
-# copaqatarnews
+# Copa Qatar News
